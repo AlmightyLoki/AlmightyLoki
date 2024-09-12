@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AlmightyLoki
+- 👋 Hi, I’m @SHASVATH SK
 - 👀 I’m interested in digital skills like coding,designing and a great learner
 - 🌱 I’m currently learning programming and some...
 - 💞️ I’m looking to collaborate on coding and profit based projects
